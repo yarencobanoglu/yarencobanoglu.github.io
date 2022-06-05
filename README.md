@@ -1,1 +1,0 @@
-# yarencobanoglu.github.io
